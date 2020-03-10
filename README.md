@@ -1,0 +1,2 @@
+# mnemotecniamusical
+como memorizar partituras
